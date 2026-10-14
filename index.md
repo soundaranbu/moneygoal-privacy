@@ -53,5 +53,5 @@ If this policy changes, the updated version will be posted at this address with 
 
 ## Contact
 
-If you have questions about this policy, contact: **soundaranbu+moneygoal@gmail.com**
+If you have questions about this policy, contact: **soundar17a+moneygoal@gmail.com**
 
